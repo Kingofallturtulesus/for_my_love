@@ -20,5 +20,18 @@ I cant wait to crown you as my incredible little princess.
 
 This puzzle ended up being a bit more work than i really expected, but anything, anything is worth it for you, my dear.
 
+You are truly my little girl, and I am your Diamond. 
+I really cant wait to act out some Really good scenes with you
 
+theres the one where im a homeworld gem, capturing you, the rebel crystal gem...
+theres the one where im a predator, hunting you down to breed you...
+I want to do one where im a professor, and you are a student in my class...
+I want to tie you up and huiliate you...
+and make videos of you to show to you afterwards... and maybe to other people...
 
+god, I really really love you
+I've never loved someone as much as I love you.
+and I am so so glad that it's you.
+
+Thank you for this incredble past year!
+-Sage
